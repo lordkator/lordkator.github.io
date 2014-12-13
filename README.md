@@ -5,7 +5,7 @@ Pages account for www.lordkator.com
 
 The goal of this site is to have a place for me to hang my random gamer stuff at w/o mixing too much with other content I have on the internet.
 
-It's not a massive secret who IRL but in games I tend to be known by the following handles:
+It's not a secret who I am IRL, in games I tend to be known by the following handles:
 
 * Kator
 * Katora
